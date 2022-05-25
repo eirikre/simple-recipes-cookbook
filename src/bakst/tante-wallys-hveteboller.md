@@ -25,7 +25,7 @@ Lett
 - 200g sukker
 - 1/4ts kardemomme
 - 6 dl melk
-- 150g smør (evt margaring hvis du ikke er #noseedoils)
+- 150g smør (evt margarin hvis du ikke er #noseedoils)
 - 50g fersk gjær
 
 ## Fremgangsmåte
@@ -34,7 +34,7 @@ Lett
 2. Smelt smør og avkjøl den til omtrent 37 grader.
 3. Rør gjær ut i lunken melk.
 4. Bland melk og smør.
-5. Kna deigen i noen minutter til den kjennes homoge ut.
+5. Kna deigen i noen minutter til den kjennes homogen ut.
 6. La deigen heve i ca 30 minutter.
 7. Del opp i like emner og rull ut til boller.
 8. Plasser dem på bakebrett, dekk til og la de heve opp mot en time.
